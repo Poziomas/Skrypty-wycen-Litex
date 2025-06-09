@@ -1,1 +1,1 @@
-# Skrypty-wycen-Litex
+# Prywatne
